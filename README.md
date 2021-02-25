@@ -30,4 +30,5 @@ You can contact one of our organizers below with any questions (we don't bite):
 - George Stiffman (georgestiffman@gmail.com)
 
 [Our Facebook Page](https://www.facebook.com/EffectiveAltruismUSC/)
+
 [Our Zoom Link](https://usc.zoom.us/j/98005599921?pwd=cmVmT2NjQTZEVWFzV0hzVnQwc005UT09)
